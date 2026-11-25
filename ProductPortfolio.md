@@ -66,7 +66,7 @@ With two colleagues, I'm building an end-to-end production and fulfillment servi
 ## 8. References
 Duamn Figueroa Rassol [email](mailto:duamnNFR@gmail.com)  
 Marcus Shepherd [email](mailto:mpwshepherd@gmail.com)   
-Federico Sohns [email](mailto:mpwshepherd@gmail.com) 
+Federico Sohns [email](mailto:admin@araukana.com) 
 
 ## 9. Contact
 Let's talk!  
